@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @WYHA-Storm
+- 👀 I’m interested in Minecraft, Pokémon, Smash Bros, Sonic The Hedgehog
+- 🌱 I’m currently learning ...
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me https://www.youtube.com/channel/UCLkSAMKnEkWFj5NEtWRXU8A, other links will be on my channel page
+- 😄 Pronouns: ... Minecraft Builder, Datapack Creator, and Ziglin Killer
+- ⚡ Fun fact: ... I EAT STUFF!!!
